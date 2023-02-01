@@ -2,9 +2,9 @@
 
 # 주로하는 게임
 
-> ER, LOL, KurtzPel 
+> 
 
->> CRK, EverSoul
+>> 
 
 ## akseklw
 
